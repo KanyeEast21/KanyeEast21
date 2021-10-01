@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @KanyeEast21
-- 👀 I’m interested in Sucking balls
-- 🌱 I’m currently learning how to be gay
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in being donda
+- 🌱 I’m currently learning how to reincarnate my mother
+- 💞️ I’m looking to collaborate with drake
+- 📫 How to reach me 8182321949
 
 <!---
 KanyeEast21/KanyeEast21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
